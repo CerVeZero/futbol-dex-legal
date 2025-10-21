@@ -41,5 +41,5 @@ We use your data to:
 ---
 
 ## 6. Contact  
-Questions about privacy can be directed via Discord to **[@FutbolDexOfficial](https://discord.com/users/FutbolDexOfficial)**  
+Questions about privacy can be directed via Discord to **[@FutbolDexOfficial]([https://discord.com/users/FutbolDexOfficial](https://discord.gg/YE6wTtwkUy))**  
 or through the **official Fútbol Dex Support Server**.  
